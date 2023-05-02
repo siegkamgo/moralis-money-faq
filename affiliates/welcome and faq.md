@@ -34,7 +34,7 @@ Therefore - you don't have to sell hard, just get them to try the free version! 
 
 **How to drive traffic?**
 
-1. Create content on YouTube, Twitter and other social media showcasign Moralis Money and introduce it to new people who have never heard about it before
+1. Create content on YouTube, Twitter and other social media showcasing Moralis Money and introduce it to new people who have never heard about it before
 2. Be active in Telegram/Discord groups for altcoin traders. This is a very effective strategy as you know that those people are trading altcoins. Share your affiliate links in all such groups.
 3. Create SEO content.
 
